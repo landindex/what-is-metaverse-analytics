@@ -81,4 +81,7 @@ Landindex is the world’s most trusted and accurate source for Metaverse market
 <a href="https://rumble.com/v3jt9a2-metaverse-analytics-metaverse-2023-metaverse-land.html" rel="”dofollow”">metaverse</a>
 <a href="https://medium.com/@3438/metaverse-nedir-nas%C4%B1l-al%C4%B1n%C4%B1r-2023-2024-2025-2030-en-iyi-metaverse-projeleri-d8b8a6103285" rel="”dofollow”">en iyi metaverse projeleri</a>
 <a href="https://www.linkedin.com/pulse/analytics-metaverse-what-you-should-know-landindex" rel="”dofollow”">Analytics in the Metaverse What You Should Know</a>
+<a href="https://medium.com/@3438/what-is-metaverse-analytics-how-can-i-analyze-metaverse-land-in-2023-2024-acdc81af2c7" rel="”dofollow”">What is Metaverse Analytics? How can I analyze metaverse land in 2023-2024?</a>
+
 </p>
+
